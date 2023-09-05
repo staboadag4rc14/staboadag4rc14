@@ -1,1 +1,2 @@
-- 👋 Hi, I’m @staboadag4rc14
+- 👋 Hi, I’m Sofía Taboada
+- i´m a student at Panamerican University, i´m in my first semester
